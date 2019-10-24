@@ -1,0 +1,2 @@
+# Monir
+“I began my career in Web development. I’ve always been skilled at web development. My experience successfully leading teams and managing stores led me to consider administration of my locality, and I’ve been building a career as a web developer for the last four years.” Web development is my favorite passion. I like work online since I was in a primary student. To fulfill my desires I can work more harder. Even I can work more harder when I fail once or twice.
